@@ -6,4 +6,4 @@ Fruitkha 🍎🍌🍓🥭<br>
 
 Made with love By Gergana™
 
-👉Credits about template goes to its creator ^^!
+👉Credits for template goes to its creator ^^!
