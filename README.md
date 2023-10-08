@@ -1,6 +1,6 @@
 Fruitkha 🍎🍌🍓🥭<br>
 
-📌Wordpress course work <br>
+📌Wordpress Course Work <br>
 
 📌Used: Wordpress, PHP, MySQL<br>
 
